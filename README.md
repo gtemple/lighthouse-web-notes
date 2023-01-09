@@ -1,0 +1,1 @@
+# Giordano Temple's Notes
